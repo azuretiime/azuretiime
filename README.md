@@ -15,7 +15,7 @@ insane over two time and azure... i love them so much.. and azuretime SAVE ME!!!
 </div>　
  　 
 <div align="center">
-── ⸝⸝ INTERESTS !　 forsaken , <ins>TWO TIME AND AZURE, AZURETIME AS A WHOLE</ins>, dream game/frozen soul, blocktales, dandy's world, brandonworks, rochas313, phighting, midnight horrors, project moon (esp limbus company), project sekai. 
+── ⸝⸝ INTERESTS !　 forsaken , <ins>TWO TIME AND AZURE, AZURETIME AS A WHOLE</ins>, dream game/frozen soul, blocktales, dandy's world (kind of, i only like sprout), brandonworks, rochas313, phighting, midnight horrors, project moon (esp limbus company), project sekai. 
 </div>
 　
 <div align="center">
