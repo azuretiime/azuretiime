@@ -20,4 +20,4 @@ insane over two time and azure... i love them so much.. and azuretime SAVE ME!!!
 </div>
 　
 
-　 　　 　　　 　　　 　　 　　 　[✮ atabook](https://azuretiime.atabook.org/)　 　[✦ pronouns page](https://pronouns.cc/@azuretiime)　 　[.ᐟ.ᐟ strawpage](https://azuretimee.straw.page)　 　[୨୧ spacehey](https://spacehey.com/azuret1me)
+　 　　 　　　 　　　 　　 　　　　　 　　 　[✮ atabook](https://azuretiime.atabook.org/)　 　[✦ pronouns page](https://pronouns.cc/@azuretiime)　 　[.ᐟ.ᐟ strawpage](https://azuretimee.straw.page)
