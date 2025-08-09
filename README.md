@@ -1,23 +1,22 @@
+<img width="1712" height="460" alt="wehhh im an ouppy wehh" src="https://github.com/user-attachments/assets/069952f3-f2a5-4c71-89a2-ad9856bd3a46" />
 
-## ![yayyayaya](https://github.com/user-attachments/assets/e8b2f165-e47c-49fd-8354-6f1e04950576)
 
 
 
 <div align="center">
-୨୧ . <ins>silver</ins> / <ins>two time</ins> ⭑.ᐟ
+୨୧ . silver/ azure ⭑.ᐟ
 </div>
 　
 <div align="center">
-they / them　 ⋆ 　whisper to interact with me, i am frequently offtab so i may not see instantly! C+H is okay always ^_^ 
+they / them　 ⋆ 　whisper to interact with me, i am frequently offtab! c+h is always okay 
 </div>
 <div align="center">
-insane over two time and azure... i love them so much.. and azuretime SAVE ME!!!　 ✮　 im a minor so please dont be weird.
+i love azuretime very dearly　 ✮　 minor　⟡　 i can only speak english
 </div>　
  　
-　
-<div align="center">
-── .✦ links
-</div>
-　
 
-　 　　 　　　 　　　 　　 　　　　　 　 　[✮ atabook](https://azuretiime.atabook.org/)　 　[✦ pronouns page](https://pronouns.cc/@azuretiime)　 　[.ᐟ.ᐟ strawpage](https://azuretimee.straw.page)
+
+<img width="1312" height="92" alt="hdfh fhdf hdfh" src="https://github.com/user-attachments/assets/e99f5d06-8787-4f0c-b216-72a26d102e92" />
+
+── .✦　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 ✦. ──
+　 　　 　　　 　　　 　　 　　　　　 　 　 　[✮ atabook](https://azuretiime.atabook.org/)　 　[✦ pronouns page](https://pronouns.cc/@azuretiime)　 　[.ᐟ.ᐟ rentry](https://rentry.co/-betrayedspawn)
