@@ -18,5 +18,5 @@ i love azuretime very dearly　 ✮　 minor　⟡　 i can only speak english
 
 <img width="1312" height="92" alt="hdfh fhdf hdfh" src="https://github.com/user-attachments/assets/e99f5d06-8787-4f0c-b216-72a26d102e92" />
 
-── .✦　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 ✦. ──
-　 　　 　　　 　　　 　　 　　　　　 　 　 [✮ atabook](https://azuretiime.atabook.org/)　 　[✦ pronouns page](https://pronouns.cc/@azuretiime)　 　[.ᐟ.ᐟ rentry](https://rentry.co/-betrayedspawn)
+── .✦　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 ✦. ──
+　 　　 　　　 　　　 　　 　　　　　 　 [✮ atabook](https://azuretiime.atabook.org/)　 　[✦ pronouns page](https://pronouns.cc/@azuretiime)　 　[.ᐟ.ᐟ rentry](https://rentry.co/-betrayedspawn)
