@@ -1,5 +1,4 @@
-<img width="1712" height="460" alt="wehhh im an ouppy wehh" src="https://github.com/user-attachments/assets/069952f3-f2a5-4c71-89a2-ad9856bd3a46" />
-
+<img width="1712" height="460" alt="wehhh im an ouppy wehh" src="https://github.com/user-attachments/assets/9927d940-1d79-46d6-bf90-ce1f75b438f9" />
 
 
 
