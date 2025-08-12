@@ -3,7 +3,7 @@
 
 
 <div align="center">
-୨୧ . silver/ azure ⭑.ᐟ
+୨୧ . silver / azure ⭑.ᐟ
 </div>
 　
 <div align="center">
